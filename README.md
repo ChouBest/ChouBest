@@ -1,10 +1,6 @@
 - 👋 Hi, I’m @ChouBest
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
-
-<!---
-ChouBest/ChouBest is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+- 👀 I’m interested in mobile legend id:893720472 server:12537 only epic to mythical glory player add me
+- 🌱 I’m currently learning mobile legend MCL
+- 💞️ I’m looking to collaborate For mobile legend diamond
+- 📫 How to reach me gmail:m-11248356moe-dl.edu.my
+-Fav game:Mobile legend
